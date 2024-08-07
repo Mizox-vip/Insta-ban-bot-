@@ -25,7 +25,7 @@ INSTA BAN BOT is a powerful tool designed for managing Instagram bans efficientl
 - **Multi-Device Use**: Utilize multiple devices for quick banning.
 - **24/7 Availability**: Service is active around the clock.
 - **Guarantee**: 30-day satisfaction guarantee on ban effectiveness.
-  -CONTACT:https://t.me/
+  -CONTACT:https://t.me/KUi999999
 # INSTA BAN BOT
 
 ## 概述  
@@ -53,7 +53,7 @@ INSTA BAN BOT 是一个强大的工具，旨在高效管理 Instagram 的禁令�
 - **多设备使用**：利用多个设备快速禁令。
 - **全天候可用性**：服务全天候运行。
 - **保证**：对禁令有效性提供 30 天满意保证。
-  - 联系方式: https://t.me/
+  - 联系方式: https://t.me/KUi999999
     # INSTA BAN BOT
 
 ## Обзор  
@@ -81,4 +81,4 @@ INSTA BAN BOT — это мощный инструмент, предназнач
 - **Использование нескольких устройств**: Быстрый запрет с помощью нескольких устройств.
 - **Круглосуточная доступность**: Услуга доступна круглосуточно.
 - **Гарантия**: Гарантия на эффективность запрета в течение 30 дней.
-  - Контактная информация: https://t.me/
+  - Контактная информация: https://t.me/KUi999999
