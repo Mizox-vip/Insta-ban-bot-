@@ -11,7 +11,7 @@ INSTA BAN BOT is a powerful tool designed for managing Instagram bans efficientl
 - **Posts**: Ban posts from appearing on the platform.
 - **Live Sessions**: Control live session accessibility.
 
-### Service Offerings
+### Service Offerings 
 #### Source Code
 - **Working 24/7**: Continuous operation ensures effectiveness.
 - **Free Updates**: Receive regular updates at no additional cost.
